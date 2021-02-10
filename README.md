@@ -1,6 +1,6 @@
 ## Hello, I'm Lekha! 👋
 
-![Profile_display](http://www.bu.edu/careers/files/2017/10/desk.jpg)
+![Profile_display](https://st2.depositphotos.com/4544563/9926/i/950/depositphotos_99267002-stock-photo-coffee-table-with-laptop-and.jpg)
 
 <!--
 **lvarshini3096/lvarshini3096** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
