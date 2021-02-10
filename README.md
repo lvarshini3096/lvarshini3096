@@ -1,6 +1,6 @@
 ## Hello, I'm Lekha! 👋
 
-![Profile_display](https://st2.depositphotos.com/4544563/9926/i/950/depositphotos_99267002-stock-photo-coffee-table-with-laptop-and.jpg)
+![Profile_display](https://blog-cdn.classy.org/blog/wp-content/uploads/2020/02/11144219/NPO-brand-refresh-header-1.png)
 
 <!--
 **lvarshini3096/lvarshini3096** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
